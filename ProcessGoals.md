@@ -1,63 +1,9 @@
-Compass Call 
+# Daily LIfe
  
 Seek an extraordinary life. 
 A compass only points north, and with a simple compass you can adjust your course. You can get back on track. You can move in the direction you intend. You can seek adventure, and if you are lost for a while, you can find your way home.  Most days on a long adventure are ordinary. I want you to build ordinary days that lead to an extraordinary life. The compass is calling. 
- 
-
- 
-Table of Contents
-Who am I	5
-What is your job?	6
-Are you interested?	6
-The Promise	6
-The Goal	6
-First Draft.	7
-What Should It Contain?	12
-What is Typical.	14
-No Right to Be a Lump on a Log	14
-Where to Start	15
-Uneasy Footing.	16
-Three Pillars of Life.	16
-Direction	17
-Pace	18
-Rest	20
-Revert to the Mean	20
-Will to Win	21
-The Ordinary Day	23
-Zone A	23
-Zone B	23
-Zone C	23
-You are Finite.	24
-What is in Your Day.	24
-Principles	26
-Some is better than none. Now is better than later.	26
-Reflection	27
-Shame of Delay Stalls the Beginning.	27
-Write It Down.	27
-Pay Yourself First.	28
-Not Going To Do List	28
-Why Doesn’t Work Already	28
-Alarm Bells	29
-DICE	31
-Say NO.	32
-Early Warning System	33
-Rapid Prototyping	33
-Reflection	34
-Find Your Strengths	34
-Drive the Truck.	34
-Be a Pig.	35
-Call Your Shots.	36
-Daily Tactics	36
-Traps to Avoid	36
-Defense Against Email	37
-When in Doubt	38
-Typical Tuesday	38
-Are You Doing You?	38
-Summary	39
-
-
  
-Who am I 
+## Who am I 
 Why should you care to listen? Well, my name is Greg. I'm a husband, father, and professor. I'm even a friend to a few people. I love what I do. 
 I teach at Creighton University full-time. But what's my job today? 
 Today I'm not a professor. Today, I'm not your friend. What am I today? 
@@ -68,13 +14,13 @@ I ask one thing. Right now, today, right here. Be where your feet are. Be presen
 Are you interested?
 Maybe you don’t need to worry about a daily routine? Maybe you don’t walk around wondering if missing out or falling short? Maybe you don’t have a mild frustration that this isn’t the life you wanted to live? If you don’t have questions like these, I suggest you keep on doing what you are doing; however, if you do question, I wrote this for you.
 
-The Promise 
+## The Promise 
 I promise you if you work with me. You'll walk away with a plan. More importantly than a plan, you'll have the tools to adjust and get back on course. You have good ideas. And you get going, and it derails. As they like to say, the enemy gets a vote. The day gets out of control. Things happen. People call. Emails come in. You need to know how to get back on course.  
 
-The Goal
+## The Goal
 You have the freedom to build the life you want. Life is a string of days. Like a baton in a relay race, you pass one day to the next; however, you only get to live one day at a time. What is a good day? Does a good day need good weather, plenty of food, lack of distractions, friends? While all those things might be on a list of a good days, they aren’t required to have a good day. When we are stressed, in trouble, or in danger, a day can be too long. A day is made up of hundreds of moments. A moment is a pause when you notice what is happening. The small space and moment you are living right then, right now. A good moment is when you aren’t rushed or afraid.  A good moment is when you realize you would be missed. I can be overwhelmed with the events and demands of a day, but I can catch a moment to notice that right now I am okay. I am alive. I have a chance. There is hope. Again, what is the goal? The goal is to build a day packed full of moments where you realize it is good to be alive. The odds are stacked against you, so you need a plan, a routine. 
 
-Goal vs Life
+## Goal vs Life
 Life is mor than goals. I start with goals, so you have some tactics to start building a life you want. Life is more important than goals. Life is what happens along the way.
 
 First Draft. 
