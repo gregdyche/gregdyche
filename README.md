@@ -1,4 +1,4 @@
-Hello, I enjoy tinkering and learing. I'm curious to a fault. I live to crack the code. The code being what it takes to have a decent life. I'm not worried about a great life - might take too much luck. I'm looking for an approach to a decent life measured by how we treat others. I'd like my tombstone to read "He led us through the valley.", and I don't want it to be a lie. A valley is as much a feeling as a goegraphy. I believe most people are unaware they are in a valley. Like Thoreaugh said, "lives of quiet desperation".
+Hello, I enjoy tinkering and learing. I'm curious to a fault. I live to crack the code. The code being what it takes to have a decent life. I'm not worried about a great life - might take too much luck. I'm looking for an approach to a decent life measured by how we treat others. 
 
 With a lot of luck and a litle hard work, I've managed to build a blessed life for myself. I'm married to an incredible lady -- and have been for over 25 years. I am a parent to six children, and I get to teach at a wonderful university, Creighton. 
  
